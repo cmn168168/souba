@@ -4,13 +4,13 @@ souba
 
 一定要请老司机Ctrl+D 收藏此页面，手机端收藏不迷路,以免迷路 Ctrl+D 加入收藏夹，下次不用再为找站而烦恼
 
-记住：搜吧主地址->http://xx100.xyz
+记住：搜吧主地址->http://xx100.xyz  记住：搜吧主地址->http://xx200.xyz    记住：搜吧主地址->http://xx300.xyz   
 
-最新地址1：http://ix100.xyz
+最新地址1：http://ix100.xyz      记住：搜吧主地址->http://xx400.xyz   记住：搜吧主地址->http://xx600.xyz    
+  
+备用地址2:http://c8c8.org       记住：搜吧主地址->http://xx700.xyz        
 
-备用地址2:http://c8c8.org
-
-备用地址3:http://wox100.xyz
+备用地址3:http://wox100.xyz     记住：搜吧主地址->http://xx800.xyz    记住：搜吧主地址->http://xx900.xyz
 
 备用地址4:http://x1008.xyz
 
