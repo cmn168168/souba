@@ -4,7 +4,7 @@ souba
 
 一定要请老司机Ctrl+D 收藏此页面，手机端收藏不迷路,以免迷路 Ctrl+D 加入收藏夹，下次不用再为找站而烦恼
 
-记住：搜吧主地址->http://xx100.xyz  记住：搜吧主地址->http://xx200.xyz    记住：搜吧主地址->http://xx300.xyz   
+记住：搜吧主地址->http://xx100.xyz(已停用)  记住：搜吧主地址->http://xx200.xyz    记住：搜吧主地址->http://xx300.xyz   
 
 最新地址1：http://ix100.xyz      记住：搜吧主地址->http://xx400.xyz   记住：搜吧主地址->http://xx600.xyz    
   
