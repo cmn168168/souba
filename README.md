@@ -16,6 +16,6 @@ souba
 
 备用地址5:http://xx1008.xyz
 
-备用地址6:http://xx100.xyz
+备用地址6:http://xx100.xyz     备用地址:http://av7av8.com
 
 备用地址7:http://ao8.org 温馨提示:最好不要使用老域名继续访问 如果因各种原因，以上域名都不行（通常概率是万分之一）或者联系邮箱cmn168168@gmail.com 获取最新地址。
